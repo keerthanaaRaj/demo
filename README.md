@@ -17,3 +17,4 @@ A kind which coul neither be created ever again.
 Not through influence but through knowledge who inspired me throughout it.
 and my father too because he sacrifice everything for both of us.
 i want to enter into a good job so that i can rest my father and thats all about it.
+As i told I'm from bio group and i'm new to cs so i hope that through your teachings i could understand about codings and computings

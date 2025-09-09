@@ -11,3 +11,9 @@ My father's occupation is TNEB(Tamilnadu Electic Board)
 And he is going to complete his service within 8 and half years
 And my mother name is muthu lakshmi.B
 She is a house wife and i have a sister she is studying in velammal theni and thats all about my family.
+Role model
+The wings of fire author A.P.J.Abdul Kalam.
+A kind which coul neither be created ever again.
+Not through influence but through knowledge who inspired me throughout it.
+and my father too because he sacrifice everything for both of us.
+i want to enter into a good job so that i can rest my father and thats all about it.
